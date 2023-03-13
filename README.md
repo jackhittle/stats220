@@ -13,3 +13,5 @@
 
 ---
 full project details - [stats220 project 1](https://www.stat.auckland.ac.nz/~fergusson/stats220_S123/project1.php)
+
+linkedin account - [linkedin](https://www.linkedin.com/in/jackhittle/)
